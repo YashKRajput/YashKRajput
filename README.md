@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding..
 - 🌱 I’m currently learning Js
 - 💞️ I’m looking to collaborate on Companys
-- 📫 How to reach me Contact Number : 9105394469
+- 📫 How to reach me Contact Number : 7505965937
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
